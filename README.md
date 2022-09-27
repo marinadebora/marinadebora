@@ -1,4 +1,5 @@
-![Nuevo proyecto (13)](https://user-images.githubusercontent.com/96552684/192636777-ba22c21c-d17e-46a5-8c21-804a38199d92.jpg)
+![Nuevo proyecto (4)](https://user-images.githubusercontent.com/96552684/192637230-4aec5cb1-5a56-4fe1-bfaf-4d6b9b76f364.png)
+
 
 soy una persona resiliente, apuesto a mejorar y aprender cada dia, me gusta tanto el back end como el frond end.
 
