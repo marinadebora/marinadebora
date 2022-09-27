@@ -3,5 +3,9 @@
 soy una persona resiliente, apuesto a mejorar y aprender cada dia, me gusta tanto el back end como el frond end.
 
 MIS TECNOLOGIAS
+
+
+
+
 ![Nuevo proyecto](https://user-images.githubusercontent.com/96552684/192623111-41fc5e04-3a50-4d16-bbd8-0b51c7c19a47.png)
 
