@@ -9,3 +9,4 @@ MIS TECNOLOGIAS
 
 ![Nuevo proyecto](https://user-images.githubusercontent.com/96552684/192623111-41fc5e04-3a50-4d16-bbd8-0b51c7c19a47.png)
 
+https://www.linkedin.com/in/marina-d%C3%A9bora-carabajal-05a0a6219/
