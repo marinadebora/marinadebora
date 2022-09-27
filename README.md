@@ -4,9 +4,10 @@ soy una persona resiliente, apuesto a mejorar y aprender cada dia, me gusta tant
 
 MIS TECNOLOGIAS
 
+![Nuevo proyecto (13)](https://user-images.githubusercontent.com/96552684/192636777-ba22c21c-d17e-46a5-8c21-804a38199d92.jpg)
 
 
-![Nuevo proyecto (13)](https://user-images.githubusercontent.com/96552684/192636704-677e79b3-d369-4d13-970e-3dfba730eafe.jpg)
+
 
 
 https://www.linkedin.com/in/marina-d%C3%A9bora-carabajal-05a0a6219/
